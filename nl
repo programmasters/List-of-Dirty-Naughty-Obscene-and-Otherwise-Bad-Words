@@ -87,6 +87,7 @@ kloten
 knor
 kontg
 kontneuken
+kontneuker
 krentekakker
 kut
 kuttelikkertje
@@ -146,6 +147,7 @@ rukken
 schatje
 schijt
 schijten
+schtijthol
 schoft
 schuinsmarcheerder
 shit
@@ -153,7 +155,9 @@ slempen
 sletg
 sletterig
 slik mijn zaad
+smegma
 snolg
+sperma
 spuiten
 standje
 standje-69g
@@ -170,7 +174,6 @@ tongzoeng
 triootjeg
 trottoir prostituée
 trottoirteef
-utrecht
 vergallen
 verkloten
 verneuken
@@ -185,6 +188,7 @@ wijf
 wippen
 wuftje
 zaadje
+zaad
 zakkenwasser
 zeiken
 zeiker
